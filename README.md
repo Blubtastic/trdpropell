@@ -1,2 +1,2 @@
 # trdpropell
-Home page for Trondheim Propeller Hat Clut
+Home page for Trondheim Propeller Hat Club
